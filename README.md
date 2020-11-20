@@ -1,8 +1,14 @@
 ### 
+Oto ja :
 
     (\_/)
     ( •_•)
     / >🍕
+    
+A oto moja strona : https://majagurdek.github.io/
+
+✨enjoy✨
+
 
 <!--
 **majagurdek/majagurdek** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -5,7 +5,7 @@ Oto ja :
     ( •_•)
     / >🍕
     
-A oto moja strona : https://majagurdek.github.io/
+A oto moja fantastyczna strona : https://majagurdek.github.io/
 
 ✨enjoy✨
 
